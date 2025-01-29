@@ -1,0 +1,1 @@
+#Nibgat Ödev1
